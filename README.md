@@ -15,4 +15,6 @@ H
 <br/>
 <br/>
 (POLSKA GUROM)
- 
+<br/>
+<br/>
+Discord : steinscanner
